@@ -1,0 +1,2 @@
+# ideas
+do something beter
